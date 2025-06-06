@@ -1,2 +1,2 @@
-# Wylogowywuj-si-gamoniu
+# Wylogowywuj-się-gamoniu
 Kuba Czaja, nie ma jaja!
